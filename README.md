@@ -1,3 +1,3 @@
 RJ Wedding Website
 
-# link to inspiration - https://www.wiselythemes.com/html/lilac/index-video.html
+# link to inspiration - https://themeforest.net/item/wedding-industry-wedding-multipurpose-couple-wp/12744555
